@@ -36,9 +36,9 @@ Completed 300+ hours covering data analysis, statistical methods, and visualizat
 
 I apply these technical skills to optimize communication workflows and data systems for high-performing professionals.
 
-**Website:** [riendmaku.carrd.co](https://riendmaku.carrd.co)  
-**LinkedIn:** [linkedin.com/in/riendmaku](https://linkedin.com/in/riendmaku)  
-**Email:** riend@riendmaku.com
+**Website:** (https://riendmaku.carrd.co)  
+**LinkedIn:** (https://www.linkedin.com/in/fanesa-maku-7644783a9)  
+**Email:** fanesamaku@gmail.com 
 
 
 *Portfolio last updated: January 2026*
